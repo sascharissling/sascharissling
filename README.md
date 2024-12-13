@@ -8,8 +8,9 @@
 - ⚡ Fun facts:
     - My first two cats when I was a kid were named Eddie and Sissi. I still have a drawing of them. I am not a cat person, but my Mom is. 
     - I was Bonnie Tyler's tour manager for three days in 2017. 
-    - My favorite restaurant is called Bun Pho. They serve southern vietnamese food and both our kids did their first restaurant visits there.
-    - I did three Ironman Triathlons with comparably little training. I wont tell you about it again myself but now you know 70% of my identity.
+    - My favorite restaurant is called Bun Pho. They serve south vietnamese food and both our kids did their first restaurant visits there.
+    - I did three Ironman Triathlons with comparably little training. I wont tell you about it again but i'm very proud of it.
+    - I do have dozens of software ideas, started 7% of them and finished 0.5%.
     - I like to dis- and reassemble roadbikes.
   
       
