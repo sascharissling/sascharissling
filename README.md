@@ -11,7 +11,7 @@
     - My favorite restaurant is called Bun Pho. They serve south vietnamese food and it is the first restaurant both our kids visited in their life.
     - I did three Ironman Triathlons with comparably little training. I wont tell you about it again but i'm very proud of it.
     - I do have dozens of software ideas, started 7% of them and finished 0.5%.
-    - I like to dis- and reassemble roadbikes.
+    - I like to disassemble, clean all the parts and then reassemble roadbikes. 
   
       
 
