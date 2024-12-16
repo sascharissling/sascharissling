@@ -1,3 +1,3 @@
 ## 👋
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
+![](https://hit.yhype.me/github/profile?account_id=53901545)
